@@ -1,4 +1,4 @@
-Barrett Dylan Brown 2025 Copyright o mystupidchatgptblog.blogpot.com by jacksonxhacker@proton.me
+Copyright o mystupidchatgptblog.blogpot.com by jacksonxhacker@proton.me
 Ben.Molotovich@gmail.com
 
 “A loop that reflects itself,
